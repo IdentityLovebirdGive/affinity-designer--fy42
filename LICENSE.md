@@ -1,4 +1,4 @@
-# 
+# Enhance Affinity Designer for macOS with Affinity Designer for macOS ultimate Panel - grid systems and masking tools, the #1 panel. Includes grid systems and masking tools for a
 
 
 
